@@ -1,1 +1,1 @@
-hello
+USC Undergraduate, Physics & Math 
